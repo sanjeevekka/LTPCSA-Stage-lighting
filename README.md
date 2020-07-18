@@ -1,1 +1,0 @@
-# LTPCSA-Stage-lighting
